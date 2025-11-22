@@ -1,2 +1,3 @@
 # proyectito-git
-Nice projects I made on the SENA with Gio and my friends
+# Tal vez no sepa exactamente que hago pero luzco genial haciendolo 
+# Todo por el trabajo de Gio el mejor e iconic 
